@@ -1,7 +1,7 @@
 ⠀<p align="center">
 <img src="https://files.catbox.moe/8mkjwt.png" width="900px"/> 
 <h1 align="center">
-  <b>  _____________________ ‿<img src="https://i.pinimg.com/originals/46/50/97/4650971ac95a5a23f0e783bb2abd7a37.gif" width="30px"/>  ‿ _____________________ 
+  <b>  _____________________ ‿🤍‿ _____________________ 
 
 
 
